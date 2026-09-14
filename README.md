@@ -1,5 +1,3 @@
 <img width="1200" height="900" alt="urban twilight, Ryan Haight" src="https://github.com/user-attachments/assets/883faa49-9a3f-4b84-9d05-884f7cd50f33" />
 
-ᴘᴜʀᴇ ᴅᴇʟɪɢʜᴛꜱ ꜱᴜʀʀᴏᴜɴᴅ ᴜꜱ ᴀꜱ ᴡᴇ ꜱᴀɪʟ, ꜱɪɢɴᴇᴅ, ʏᴏᴜʀꜱ ᴛʀᴜʟʏ - ᴛʜᴇ ᴡʜᴀʟᴇ.
-
-<img width="200" height="100" alt="Screenshot 2026-09-14 030618" src="https://github.com/user-attachments/assets/e342affe-2934-4ff1-83c2-65927040a957" />
+𝙾𝚞𝚛 𝚜𝚙𝚊𝚌𝚎 𝚒𝚗 𝚝𝚑𝚎 𝚍𝚊𝚛𝚔 𝚌𝚒𝚝𝚢, 𝚏𝚕𝚘𝚠𝚒𝚗𝚐 𝚒𝚗 𝚝𝚑𝚎 𝚛𝚑𝚢𝚝𝚑𝚖. 𝙰 𝚋𝚒𝚝 𝚘𝚏 𝚖𝚒𝚜𝚜 𝚊 𝚛𝚊𝚒𝚗𝚍𝚛𝚘𝚙 𝚝𝚑𝚊𝚝 𝚏𝚎𝚕𝚕 𝚜𝚘𝚏𝚝𝚕𝚢 𝚠𝚊𝚔𝚎𝚜 𝚖𝚢 𝚍𝚒𝚣𝚣𝚢 𝚍𝚊𝚠𝚗.
