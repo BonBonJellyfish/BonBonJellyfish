@@ -11,7 +11,7 @@
    ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　
 . ݁　⊹ ࣪ ˖　　　 ࣪ ˖
 　　.  ݁　　　  ݁
-　　. ⠀⠀⠀                                    𖤐                 
+　　. ⠀⠀⠀                    Proud Catalyst High Co-host.                𖤐                 
 
 
 
