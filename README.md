@@ -11,7 +11,7 @@
    ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　
 . ݁　⊹ ࣪ ˖　　　 ࣪ ˖
 　　.  ݁　　　  ݁
-　　. ⠀⠀⠀                    Proud Catalyst High Co-host, former Roblox creator.                𖤐                 
+　　. ⠀⠀⠀                    Proud Catalyst High Co-host.                𖤐                 
 
 
 
