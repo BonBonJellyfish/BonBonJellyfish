@@ -62,7 +62,7 @@
 　.⠀　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
 　　　　　✦⠀　   　　　,
 
-     　　https://youtu.be/7WbbwrrRSTg?si=_gICsscv3roZ2X76　
+     　                                              　https://youtu.be/7WbbwrrRSTg
 　　　　　　　
 　　　˚　　　　　　　　ﾟ　　　
 　.⠀　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
