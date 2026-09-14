@@ -1,3 +1,3 @@
-<img width="640" height="384" alt="𝖗𝖔𝖘𝖎𝖊 シ︎" src="https://github.com/user-attachments/assets/decf3af1-ec57-4d3d-b95b-0454f6b78ae1" />
+<img width="1200" height="900" alt="urban twilight, Ryan Haight" src="https://github.com/user-attachments/assets/883faa49-9a3f-4b84-9d05-884f7cd50f33" />
 
 ᴘᴜʀᴇ ᴅᴇʟɪɢʜᴛꜱ ꜱᴜʀʀᴏᴜɴᴅ ᴜꜱ ᴀꜱ ᴡᴇ ꜱᴀɪʟ, ꜱɪɢɴᴇᴅ, ʏᴏᴜʀꜱ ᴛʀᴜʟʏ - ᴛʜᴇ ᴡʜᴀʟᴇ.
