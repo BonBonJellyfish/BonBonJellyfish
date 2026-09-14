@@ -56,3 +56,4 @@
 　.⠀　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
 　　　　　✦⠀　   　　　,
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Slab&weight=200&size=17&duration=4970&pause=990&color=24D6F7&center=true&vCenter=true&random=true&width=425&height=40&lines=Cece+is+usually+sleepy%2C+but+kind.;Zen+is+very+respectful+and+easy-going.;I+adore+miss+Brianna.;Marlboro+is+strange%2C+but+neat.;Juliet+can+be+demanding%2C+although+sweet.;Apple+Bottom+Jeanie.;I+love+Alien+Stage.;My+favourite+Pokemon+is+Dragapult.;Resin's+art+is+amazing.;Volleyball+captain+Hina.;Consider+joining+when+Catalyst+is+hosting+please.;Nice+to+see+you+here.;Stay+safe+out+there.;I+love+Studio+Ghibli.)]
