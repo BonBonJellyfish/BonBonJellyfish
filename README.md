@@ -47,7 +47,7 @@
  　　˚　　　⠀　⠀  　　,　　　　　　.
 　　　　　　　　　　　　　.
 　　　　　　*⠀　　⠀  　　　　　⠀✦⠀　
-　　　　　　*　　　　　　　　　　　　　　　　　.　If you desire to talk to me or talk directly, please simply ask. <<3
+　　　　　　*　　　　　　　　　　.　If you desire to talk to me or talk directly, please simply ask. <<3
 　　　　.　　　　.　　　
 　　　　　　　　　　　.
 　　　　　　　
