@@ -69,4 +69,16 @@
 　　　　　✦⠀　   　　　,
 
  <img width="100" height="166" alt="めちくん on X" src="https://github.com/user-attachments/assets/2ff559c0-8723-422d-a97d-43af37b217be" />
+I am a fan of Rin Penrose and Astralspiff.
+I like Alien Stage, Pokémon, Deadplate, Married in Red, Cold Front, Stardew Valley, Don't Starve Together, Minecraft, Plants Versus Zombies, Warriors Cats, Chikwawa, Five Nights at Freddy's, Sonic and last, but not least Hollow Knight.
+⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀.　　　　　　　　　　　　　.　　　ﾟ .　　　　　　　　　　　　　. 　　　　　　　　　　　　　　　✦ 　　　　　,　　　　　　　.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+　　　　　　*　　　　　　　　　　　.
+.　　　　　　　　　　　　　. 　　✦⠀　   　　　,　　　　　　　　　*
+　　　　　⠀　　　　⠀　　,
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀.　　　　　 　　⠀　　　⠀.　
+ 　　˚　　　⠀　⠀  　　,　　　　　　.
+　　　　　　　　　　　　　.
+　　　　　　*⠀　　⠀  　　　　　⠀✦⠀　
+　　　　　　*　　　　　　　　　　　　　　　　　　. <img width="100" height="100" alt="2_2___hyunluka_matching__-removebg-preview" src="https://github.com/user-attachments/assets/d177ab50-5ea9-45d5-bc34-d5039c67e6de" />
 
