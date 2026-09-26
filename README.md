@@ -48,14 +48,15 @@
  　　˚　　　⠀　⠀  　　,　　　　　　.
 　　　　　　　　　　　　　.
 　　　　　　*⠀　　⠀  　　　　　⠀✦⠀　
-　　　　*　　　　　　　　　　.　𝘐𝘧 𝘺𝘰𝘶 𝘥𝘦𝘴𝘪𝘳𝘦 𝘵𝘰 𝘧𝘳𝘪𝘦𝘯𝘥 𝘮𝘦 𝘰𝘳 𝘫𝘶𝘴𝘵 𝘵𝘢𝘭𝘬 𝘥𝘪𝘳𝘦𝘤𝘵𝘭𝘺, 𝘱𝘭𝘦𝘢𝘴𝘦 𝘴𝘪𝘮𝘱𝘭𝘺 𝘢𝘴𝘬. 𝘖𝘵𝘩𝘦𝘳𝘸𝘪𝘴𝘦, 𝘐 𝘮𝘢𝘺 𝘪𝘨𝘯𝘰𝘳𝘦 𝘪𝘵. 
+　　　　*　　　　　　　　　　.　
 　　　　.　　　　.　　　
 　　　　　　　　　　　.
 　　　　　　　
 　　　˚　　　　　　　　ﾟ　　　　　.
 　.⠀　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
 　　　　　✦⠀　   　　　,
-    
+
+  
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Slab&weight=200&size=17&duration=4970&pause=990&color=24D6F7&center=true&vCenter=true&random=true&width=425&height=40&lines=Cece+is+usually+sleepy%2C+but+kind.;Zen+is+very+respectful+and+easy-going.;I+adore+miss+Brianna.;Marlboro+is+strange%2C+but+neat.;Juliet+can+be+demanding%2C+although+sweet.;Apple+Bottom+Jeanie.;;You+could+say+Sol+is+soulful.;I+love+Alien+Stage.;My+favourite+Pokemon+is+Dragapult.;Resin's+art+is+amazing.;Volleyball+captain+Hina.;Consider+joining+when+Catalyst+is+hosting+please.;Nice+to+see+you+here.;Stay+safe+out+there.;I+love+Studio+Ghibli.)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316xoxrtwddhbkza2if4oyhircdi&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=28e2a4)
 　　　　　　.
 　　　　　　　
@@ -67,7 +68,7 @@
 　　　　　　　
 　　　˚　　　　　　　　ﾟ　　　
 　.⠀　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
-　　　　　✦⠀　   　　　,
+　𝘐𝘧 𝘺𝘰𝘶 𝘥𝘦𝘴𝘪𝘳𝘦 𝘵𝘰 𝘧𝘳𝘪𝘦𝘯𝘥 𝘮𝘦 𝘰𝘳 𝘫𝘶𝘴𝘵 𝘵𝘢𝘭𝘬 𝘥𝘪𝘳𝘦𝘤𝘵𝘭𝘺, 𝘱𝘭𝘦𝘢𝘴𝘦 𝘴𝘪𝘮𝘱𝘭𝘺 𝘢𝘴𝘬. 𝘖𝘵𝘩𝘦𝘳𝘸𝘪𝘴𝘦, 𝘐 𝘮𝘢𝘺 𝘪𝘨𝘯𝘰𝘳𝘦 𝘪𝘵. 　　　　✦⠀　   　　　,
 
  <img width="100" height="166" alt="めちくん on X" src="https://github.com/user-attachments/assets/2ff559c0-8723-422d-a97d-43af37b217be" />
 𝘐 𝘢𝘮 𝘢 𝘧𝘢𝘯 𝘰𝘧 𝘙𝘪𝘯 𝘗𝘦𝘯𝘳𝘰𝘴𝘦 𝘢𝘯𝘥 𝘈𝘴𝘵𝘳𝘢𝘭𝘴𝘱𝘪𝘧𝘧.　　˚　　　　　　　　ﾟ　　　　　✦⠀　   
