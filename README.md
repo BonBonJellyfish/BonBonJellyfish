@@ -57,7 +57,7 @@
 　　　　　✦⠀　   　　　,
 
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Slab&weight=100&size=17&duration=4970&pause=990&color=24D6F7&center=true&vCenter=true&random=true&width=200&height=20&lines=Cece+is+usually+sleepy%2C+but+kind.;Zen+is+very+respectful+and+easy-going.;I+adore+miss+Brianna.;Marlboro+is+strange%2C+but+neat.;Juliet+can+be+demanding%2C+although+sweet.;Apple+Bottom+Jeanie.;;You+could+say+Sol+is+soulful.;I+love+Alien+Stage.;My+favourite+Pokemon+is+Dragapult.;Resin's+art+is+amazing.;Volleyball+captain+Hina.;Consider+joining+when+Catalyst+is+hosting+please.;Nice+to+see+you+here.;Stay+safe+out+there.;I+love+Studio+Ghibli.)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316xoxrtwddhbkza2if4oyhircdi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316xoxrtwddhbkza2if4oyhircdi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 　　　　　　.
 　　　　　　　
 　　　˚　　　　　　　　ﾟ　　　
